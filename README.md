@@ -8,5 +8,5 @@ Skills
 🚀 Web Applications Engineer
 
 📫 Contact Me
-GitHub: Kai-Omalay
+GitHub: Omalay2213
 Email: Kaiomalay81@gmail.com
